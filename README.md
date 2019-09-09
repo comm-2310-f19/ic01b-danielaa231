@@ -6,9 +6,9 @@
 
 1. I'm taking this class because _________________________
 
-1. My favorite movie is ___________________
+1. My favorite movie is **Instructions Not Included**
 
-1. My favorite tv show is _________________
+1. My favorite tv show is **Rebelde**
 
-1. My favorite YouTube channel is ____________________
+1. My favorite YouTube channel is *CaseyNeistat*
 
